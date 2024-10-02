@@ -1,3 +1,3 @@
 # Resume
 ## Shruti CEO @Barclays
-I'm upcoming intern @ Barclays.
+Wishing for successful career
