@@ -1,2 +1,2 @@
 # Resume
-I'm upcoming intern @ Barclays
+I'm upcoming intern @ Barclays.
