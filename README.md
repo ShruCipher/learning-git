@@ -1,3 +1,3 @@
 # Resume
 ## Shruti CEO @Barclays
-Wishing for successful career
+I'm Wishing for my successful career
