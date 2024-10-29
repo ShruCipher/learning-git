@@ -6,7 +6,7 @@ I'm learning
 
 ## Education
 
-- BTech
+- BTech Cummins College 
 - Diploma
 
 
